@@ -3,8 +3,6 @@
 
 
 
-Here are some ideas to get you started:
-
 - 🔭 I’m currently working on building my fundimentals getting some projects under my belt
 - 🌱 I’m currently learning learning Cloud Computing and re-introducing myself to the 2025 Tech Space
 - 👯 I’m looking to collaborate on anything that's a good learning oppritunity!
