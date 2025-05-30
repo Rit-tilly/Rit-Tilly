@@ -9,5 +9,5 @@
 - 🤔 I’m looking for help with whatever pointers or insights one could offer!
 - 💬 Ask me about anything! Don't be afraid to say "Heyo"!
 - 📫 How to reach me: harleybeta@gmail.com
-- ⚡ Fun fact: Something you, I and Bill Gates have in common is: We have no idea what were really doing! Just, like everyone were making it up as we go :D how fun
+- ⚡ Fun fact: Something you, I and Bill Gates have in common is: We have no idea what were really doing! Just like everyone were making it up as we go :D how fun
 
